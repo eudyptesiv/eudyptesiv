@@ -1,7 +1,7 @@
 ## my name is alex , hai 
 
-![7f26d4b334df28d585fad3fe13dd3981](https://github.com/user-attachments/assets/1261bf2a-9be8-4e21-b680-7eed2de7f7cc)
+![Untitled282_20250418003742_png](https://github.com/user-attachments/assets/aaf9d698-6beb-4ceb-ba25-ece187e741bb)
+<br> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed!! so leave a whisper (๐॔˃̶ᗜ˂̶๐॓)
+<br>![Untitled281_20250418003559_png](https://github.com/user-attachments/assets/18f97ed0-2473-4a45-acc6-8204ab45c58d)
 
-<br> unironically just wander around and watch specimen on this joyful (i'm lying) game
-<br>
-<br> yes i am VERY into yaoi especially bara. no i'm not a fetishizer thank u
+<br> yes i am VERY into yaoi especially bara. no i'm not a fetishizer before u assume so god forbid i have hobbies
