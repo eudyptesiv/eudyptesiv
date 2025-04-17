@@ -1,2 +1,2 @@
 # my name is alex , haii !!
-$${\color{lightgreen}Rigel}$$
+{\color{lightgreen}i very much have hemmorhoids}
