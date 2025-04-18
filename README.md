@@ -1,4 +1,5 @@
-<br> <p align="center"> 
+<br> <p align="center"> ![Uploading 202504181537(3)(1).gif…]()
+
  <br> <p align="center"> **$${\color{lightpink}hai \space my \space name \space is \space alex!!}$$**
 <br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
 <br> <p align="center"> ୨ৎ─⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘─୨ৎ
