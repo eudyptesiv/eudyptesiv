@@ -1,5 +1,5 @@
-<br> <p align="center"> ![Untitled284_20250418145804](https://github.com/user-attachments/assets/635828dc-e5fd-44ee-82cd-6151462e812e) ##
- <br> <p align="center"> $${\color{greenyellow}hai \space my \space name \space is \space alex!!}$$
+<br> <p align="center"> ![Untitled284_20250418145804](https://github.com/user-attachments/assets/635828dc-e5fd-44ee-82cd-6151462e812e) 
+ <br> <p align="center"> # $${\color{greenyellow}hai \space my \space name \space is \space alex!!}$$
  <br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
 <br> ![Untitled281_20250418003559_png](https://github.com/user-attachments/assets/e172126c-02d8-4486-a535-74a18a71ab53)
 <br> <p align="center">  would more than love interactions boops and smooches 
