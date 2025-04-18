@@ -3,7 +3,7 @@
 <br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
 <br> <p align="center"> ୨ৎ─⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘─୨ৎ
 <br> <p align="center">  would more than love interactions boops and smooches 
-<br> <p align="center"> yes i am a bara enjoyer .. no i'm not a fetishizer .. before u assume no i won't be weird about it around you ! 
+<br> <p align="center"> yes i am a bara enjoyer and a fudanshi .. no i'm not a fetishizer .. before u assume no i won't be weird about it around you ! 
 <br> ![barbell](https://github.com/user-attachments/assets/fecf7061-b6d1-4510-a486-7f7ebe115ac3)
 <br> <p align="center"> <ins>DNI<ins>
 <br> <p align="center">  proshippers and darkshippers who take it too far??? no beef with comshippers though… i don't even ship characters; i just don't want you people around me because you're a freak in a bad way. i do love me a good freakaleek tho... be freaky to me... 
