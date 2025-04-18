@@ -1,6 +1,6 @@
-<br> <p align="center"> ![Untitled284_20250418145804](https://github.com/user-attachments/assets/635828dc-e5fd-44ee-82cd-6151462e812e) 
+<br> <p align="center">  ![202504181537(3)(1)](https://github.com/user-attachments/assets/364f6fbc-ceab-4c47-b9d2-2df0bcf6cdf3)
  <br> <p align="center"> **$${\color{lightpink}hai \space my \space name \space is \space alex!!}$$**
- <br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
+<br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
 <br> <p align="center"> ୨ৎ─⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘─୨ৎ
 <br> <p align="center">  would more than love interactions boops and smooches 
 <br> <p align="center"> yes i am a bara enjoyer .. no i'm not a fetishizer .. before u assume no i won't be weird about it around you ! 
