@@ -1,6 +1,4 @@
 <br> <p align="center"> ![Sundowner Phase 2 segway(1)](https://github.com/user-attachments/assets/c49d80a7-b57d-4f6a-b072-fa5dc6794302)
-
-
  <br> <p align="center"> **$${\color{lightpink}hai \space my \space name \space is \space alex!!}$$**
 <br> <p align="center"> unironically just wander around and watch specimen on this joyful game , 50/50 chance of me being offtabed. leave a whisper（￣︶￣）
 <br> <p align="center"> ୨ৎ─⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘─୨ৎ
