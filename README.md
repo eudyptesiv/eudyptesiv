@@ -4,7 +4,7 @@
 <br> <p align="center"> ![image-2024-05-23-213254403](https://github.com/user-attachments/assets/b9b6d142-2ef3-41af-a483-af9c200a4437)
 <br> <p align="center">  would more than love interactions boops and smooches 
 <br> <p align="center"> yes i am a bara enjoyer .. no i'm not a fetishizer .. before u assume no i won't be weird about it around you ! 
-<br> ![image-2024-05-23-213254403](https://github.com/user-attachments/assets/b9b6d142-2ef3-41af-a483-af9c200a4437)
+<br> ![barbell](https://github.com/user-attachments/assets/fecf7061-b6d1-4510-a486-7f7ebe115ac3)
 <br> <p align="center"> <ins>DNI<ins>
 <br> <p align="center">  proshippers and darkshippers who take it too far??? no beef with comshippers though… i don't even ship characters; i just don't want you people around me because you're a freak in a bad way. i do love me a good freakaleek tho... be freaky to me... 
 <br> <p align="center"> people who make their mental illness their whole personality—no, buddy, it doesn't make you unique or quirky; it just makes people want to interact with you less because it shows your self-obsession. i'm also genuinely just not capable of dealing with complicated mental illnesses because it's draining to both parties.
