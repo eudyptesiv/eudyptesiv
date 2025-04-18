@@ -11,5 +11,5 @@
 <br> <p align="center">  proshippers and darkshippers who take it too far??? no beef with comshippers though… i don't even ship characters; i just don't want you people around me because you're a freak in a bad way. i do love me a good freakaleek tho... be freaky to me... 
 <br> <p align="center"> people who make their mental illness their whole personality—no, buddy, it doesn't make you unique or quirky; it just makes people want to interact with you less because it shows your self-obsession. i'm also genuinely just not capable of dealing with complicated mental illnesses because it's draining to both parties.
 <br> <p align="center"> boyfriend to death fans. specifically. anything made by gatobob. just don't
-<br> <p align="center"> political cucks and social justice warriors. yes, i'm israeli. no, i'm not responsible for the deaths of thousands. no, i don't care about signing an internet petition that won't do shit
+<br> <p align="center"> political cucks and social justice warriors. yes, i'm israeli. no, i'm not responsible for the deaths of thousands. no, i don't care about signing an internet petition that won't do shit..! i can't even get enlisted due to personal circumstances
 <br> <p align="center"> ![Untitled282_20250418003742_png](https://github.com/user-attachments/assets/1b5ab7c5-fa87-48fd-bfc9-21155d09c0d3)
